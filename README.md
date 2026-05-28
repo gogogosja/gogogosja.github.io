@@ -1,1 +1,0 @@
-# gogogosja.github.io
